@@ -1,0 +1,1 @@
+It is more important to fully understand the work, because the whole purpose of this learnership is for us to understand the work and be able to apply it in future, especially at a new job. Completing it without understanding will eventually catch up with you in the end.
